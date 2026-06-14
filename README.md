@@ -65,7 +65,7 @@ GitHub will automatically update the live site at:
 Feel free to connect with me!
 
 * **Email:** [deerajreddy.naga@gmail.com](mailto:deerajreddy.naga@gmail.com)
-* **LinkedIn:** [linkedin.com/in/deeraj-reddy-a1b534250](https://www.linkedin.com/in/deeraj-reddy-a1b534250)
+* **LinkedIn:** www.linkedin.com/in/naga-deeraj-reddy
 
 ---
 
